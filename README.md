@@ -1,0 +1,1 @@
+# hackintosh-lenovo-ideapad-b330-14ikb
